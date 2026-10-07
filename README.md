@@ -1,0 +1,1 @@
+# pet-friendly-hotel-cashback
